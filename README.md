@@ -21,6 +21,8 @@ Welcome to the official GitHub profile of **Talent 7**, a competitive gaming cla
 - lightning ⚡
 - rabbituzi
 - systummm 
-- doremon 
+- doremon
+- ACE
+- mridul 
 
 ⭐ **"Victory is earned, not given."** ⭐  
